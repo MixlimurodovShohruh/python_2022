@@ -1,1 +1,1 @@
-CODESCHOOLUZ
+CODESCHOOLUZ O'quvchisi Shohruh.
