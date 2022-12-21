@@ -1,1 +1,1 @@
-CODESCHOOLUZ O'quvchisi Shohruh.
+CODESCHOOLUZ O'quvchisi Shohruh Mixlimurodov.
